@@ -1,7 +1,7 @@
 # VARRE VIDYASAGAR
 ALL ABOUT CRICKET
-![Cricket photo](cricket.JPG)
-![MAHI](captainmsd.JPG)
+![Cricket photo](cricket.jpg)
+![mahi](captainmsd.jpg)
 ![msd](MAHI.jpg)
 
 
