@@ -1,10 +1,10 @@
 # VARRE VIDYASAGAR
 ALL ABOUT CRICKET
 
-![Cricket photo](cricket.jpg)
+![Cricket photo](cricket.JPG)
 
 
-![mahi](captainmsd.jpg)
+![mahi](captainmsd.JPG)
 
 
 ![msdian](mahi.jpg)
