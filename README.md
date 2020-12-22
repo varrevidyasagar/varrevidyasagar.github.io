@@ -7,7 +7,7 @@ ALL ABOUT CRICKET
 ![mahi](captainmsd.jpg)
 
 
-![msd](mahi.jpg)
+![msdian](mahi.jpg)
 
 
 
