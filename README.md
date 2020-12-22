@@ -4,10 +4,11 @@ ALL ABOUT CRICKET
 ![Cricket photo](cricket.JPG)
 
 
-![mahi](captainmsd.JPG)
+![mahi](captainmsd.jpg)
 
 
-![msdian](mahi.jpg)
+![msdian](dhoni.jpg)
+
 
 
 
