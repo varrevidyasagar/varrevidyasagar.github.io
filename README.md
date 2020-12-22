@@ -2,7 +2,7 @@
 ALL ABOUT CRICKET
 ![Cricket photo](cricket.jpg)
 ![mahi](captainmsd.jpg)
-![msd](MAHI.jpg)
+![msd](mahi.jpg)
 
 
 
