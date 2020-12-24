@@ -1,9 +1,17 @@
+# SOLO VS SQUAD BATTLE
+
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/KvWJ5Snwpw8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
+
+
 # VARRE VIDYASAGAR
 Match Between ECE 3 vs ECE 4
 **Venue:**
 
 Dr PVG Raju ACA Sports Complex is a cricket stadium located in Vizianagram of the Indian state of Andhra Pradesh. It was inaugurated on 15 June 2013.[1] The stadium is home of North Zone Cricket Academy of Andhra Cricket Association which was inaugurated at a cost of ₹50 million (US$700,000) on a 10 acres (4.0 ha) near MVGR College of Engineering. The stadium has facilities such as pavilion, lodging and boarding facilities and health centre
-![Cricket photo](cricket.JPG)
+![Cricket photo](cricket.JPG
 
 
 # CHENNAI SUPER KINGS 
