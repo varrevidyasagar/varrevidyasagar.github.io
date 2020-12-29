@@ -4,6 +4,8 @@ Here is my [LinkdIN Pofile](https://www.linkedin.com/in/varre-vidya-sagar-170b35
 
 Here is my [facebook profile](https://www.facebook.com/vidyasagarchinnu143/)
 
+Here is my [Instagram profile](https://www.instagram.com/vidyasagar_chinnu/)
+
 Here is my [Contact info]**(8978477670)**
 
 Here is my mail ID **varrevidyasagar@gmail.com**
