@@ -1,5 +1,11 @@
 #  _VARRE VIDYA SAGAR_
 
+Here is my [LinkdIN Pofile](https://www.linkedin.com/in/varre-vidya-sagar-170b3511b/)
+
+Here is my [facebook profile](https://www.facebook.com/vidyasagarchinnu143/)
+
+
+
 
 
 # SOLO VS SQUAD BATTLE
@@ -20,6 +26,9 @@ Dr PVG Raju ACA Sports Complex is a cricket stadium located in Vizianagram of th
 
 # CHENNAI SUPER KINGS 
 
+
+
+
 Year	League standing	Final standing
 2008	3rd out of 8	Runners-up
 2009	2nd out of 8	Semifinalists
@@ -32,6 +41,10 @@ Year	League standing	Final standing
 2018	2nd out of 8	**Champions**
 2019	2nd out of 8	Runners-up
 2020	7th out of 8	League stage
+
+
+
+
 ![mahi](captainmsd.jpg)
 
 
@@ -51,7 +64,3 @@ Dhoni made his ODI debut on 23 December 2004 against Bangladesh, and played his 
 
 
 
-
-Here is my [LinkdIN Pofile](https://www.linkedin.com/in/varre-vidya-sagar-170b3511b/)
-
-Here is my [facebook profile](https://www.facebook.com/vidyasagarchinnu143/)
