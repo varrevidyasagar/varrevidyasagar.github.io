@@ -7,7 +7,7 @@ Here is my [facebook profile](https://www.facebook.com/vidyasagarchinnu143/)
 Here is my [Instagram profile](https://www.instagram.com/vidyasagar_chinnu/)
 
 
-Here is my officail [Gamming Channel](https://www.youtube.com/channel/UCIKnpeKrYeUbNz0IKuXvb9A)
+Here is my officail [Gaming Channel](https://www.youtube.com/channel/UCIKnpeKrYeUbNz0IKuXvb9A)
 
 Here is my [Contact info]**(8978477670)**
 
